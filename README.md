@@ -11,22 +11,30 @@
 Jesse Eisenberg's #1 Fan
 
 ## ▶︎ •၊၊||၊|။|||| |
+
  Currently Listening too..
+ 
 🌈⃤— Ᵽɨn̷ꝁ Fłøɏđ
+
  ↻ ◁ || ▷ ↺
+ 
 🎸⋆⭒˚｡⋆ 𝕿𝖆𝖒𝖊 𝕴𝖒𝖕𝖆𝖑𝖆 🎸⋆⭒˚｡⋆
+
  ANY RAP 𓁿
 
 ---
 
 ## Most Used Languages:
 Python:      | 🟩🟩🟩🟩🟩🟩🟩🟩
+
 Java:        | 🔷🔷🔷🔷🔷🔷🔷🔷🔷🔷
+
 Html/Css/JS: | 🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥
 
 ---
 ## EXTRA
 𝕹𝖄𝕮'𝕾 𝕭𝕴𝕲𝕲𝕰𝕾𝕿 𝕱𝕬𝕹
+
 ⓂⓉⒶ
 
 █  ♡  █▀▄▀█ ▄▀█ ▀█▀ █░█
