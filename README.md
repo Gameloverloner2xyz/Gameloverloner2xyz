@@ -77,3 +77,9 @@ Html/Css/JS: | 🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥�
 8. He's the coolest guy ever
 </details>
 
+<details>
+ <summary> Emotion art to draw you in</summary>
+ <br>
+ 
+</details>
+
