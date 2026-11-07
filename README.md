@@ -243,11 +243,16 @@ Html/Css/JS: | 🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥�
  <summary> My Desmos Art </summary>
  <br>
  1. Toad From Mario
+ 
  https://www.desmos.com/calculator/x2xn38g3lv
+ 
  2. Pokeball
+    
  https://www.desmos.com/calculator/r2sjzdtdkb
+ 
 </details>
 
-## MORE TO COME OR ADD
 💾
+## MORE TO COME OR ADD
+
 
