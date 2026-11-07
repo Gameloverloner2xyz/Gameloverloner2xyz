@@ -12,7 +12,7 @@ Jesse Eisenberg's #1 Fan
 
 ## ▶︎ •၊၊||၊|။|||| |
 
- Currently Listening too..
+ Currently Listening to..
  
 🌈⃤— Ᵽɨn̷ꝁ Fłøɏđ
 
@@ -38,4 +38,12 @@ Html/Css/JS: | 🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥🟥�
 ⓂⓉⒶ
 
 █  ♡  █▀▄▀█ ▄▀█ ▀█▀ █░█
+
+<details>
+  <summary> reveal Jesse Eisenberg stuff</summary>
+  <br>
+  
+  1. The Squid and The Whale is a must watch.
+  2. The Social Network is an absolute masterpiece.
+</details>
 
